@@ -1,8 +1,8 @@
 # BYI
-- introverted, i don't usually interact first
-- i'm not one to use tonetags, do not hesitate to ask me if my tone seems unclear
-- i may come off as uninterested in convos, i promise i'm not though
+> - **introverted, i don't usually interact first**  
+> - **i'm not one to use tonetags, do not hesitate to ask me if my tone seems unclear**  
+> - **i may come off as uninterested in convos, i promise i'm not though**
 
-![they're niceys](rusamecuties.webp)
+  ![hero](chibiame.webp) ![kolkol](chibirus.webp)
 
-## do not let this discourage you from interacting ! thanks for reading.
+### do not let this discourage you from interacting ! thanks for reading.
