@@ -1,5 +1,5 @@
 # byi
-introverted, i'm don't usually int first
+introverted, i don't usually interact first
 
 i'm not one to use tonetags, do not hesitate to ask me if my tone seems unclear
 
