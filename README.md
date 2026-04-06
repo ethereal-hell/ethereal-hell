@@ -6,3 +6,4 @@
   ![hero](chibiame.webp) ![kolkol](chibirus.webp)
 
 ### do not let this discourage you from interacting ! thanks for reading.
+> **my interests can be found on my straw. if we happen to share any, feel free to give me a whisper in-game.**
