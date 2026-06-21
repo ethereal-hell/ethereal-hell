@@ -1,6 +1,6 @@
 # BYI
-> - **introverted, i don't usually interact first**  
-> - **i'm not one to use tonetags, so please do not hesitate to ask me to clarify my tone if it seems unclear**  
+> - **i rarely interact first**  
+> - **i don't use tone tags, so please do not hesitate to ask me to clarify my tone if it seems unclear**  
 > - **awkward in holding conversations, i may come off as uninterested but i promise it's the opposite**
 
   ![hero](chibiame.webp) ![kolkol](chibirus.webp)
