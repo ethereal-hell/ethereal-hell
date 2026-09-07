@@ -5,7 +5,7 @@
 > - **i likely won't talk in public chat unless i'm with friends, please whisper to me instead if you wish to interact**
 
   <p align="center">
-    <img src="velorapt.png" alt="Description" width="300">
+    <img src="ira.jpg" alt="Description" width="500">
 </p>
 
 ### do not let this discourage you from interacting ! thanks for reading.
