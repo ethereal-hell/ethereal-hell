@@ -1,12 +1,13 @@
-# BYI
-> - **i rarely interact first**  
-> - **i don't use tone tags, so please do not hesitate to ask me to clarify my tone if it seems unclear**  
-> - **awkward in holding conversations, i may come off as uninterested but i promise it's the opposite**
-> - **i likely won't talk in public chat unless i'm with friends, please whisper to me instead if you wish to interact**
+   
 
+ 
+  <img align="left" widht=400 height=400 src="ira.jpg">    
+
+  
+  
   <p align="center">
-    <img src="ira.jpg" alt="Description" width="500">
-</p>
-
-### do not let this discourage you from interacting ! thanks for reading.
-> **my interests can be found on my straw. if we happen to share any, feel free to give me a whisper in-game.**
+  </a><a href="https://etherether.straw.page">strawpage</a> <br> 
+  <a href="https://etheria.atabook.org">atabook</a> <br> 
+  <a href="https://en.pronouns.page/@Etheria_">prounouns.page</a> <br>          
+<p align="center">
+ ${\textsf{Is it like a dream? Exactly like a dream.}}$ <br>
