@@ -10,5 +10,5 @@
   <p align="center">
   </a><a href="https://etherether.straw.page">strawpage</a> <br> 
   <a href="https://etheria.atabook.org">atabook</a> <br> 
-  <a href="https://en.pronouns.page/@Etheria_">prounouns.page</a> <br>  
+  <a href="https://en.pronouns.page/@Etheria_">pronouns.page</a> <br>  
 
