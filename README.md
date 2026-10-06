@@ -12,4 +12,3 @@
   <a href="https://etheria.atabook.org">atabook</a> <br> 
   <a href="https://en.pronouns.page/@Etheria_">prounouns.page</a> <br>  
 
-#
